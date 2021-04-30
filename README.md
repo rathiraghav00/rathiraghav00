@@ -1,6 +1,6 @@
 ### Hi there, I'm Raghav Rathi 👋
 
-## I'm a Pre-final year student!
+## I'm a pre-final year student!
 
 - 🌱 I’m currently an undergraduate at DTU, Delhi, India
 - 👯 I’m looking to collaborate with other content creators
